@@ -1,2 +1,2 @@
 # MyCV
-Just being pro( actually i'm not like coding)
+Just being pro(actually, I’m not into coding)
